@@ -1,0 +1,4 @@
+# Epic-Cornices And Ceilings Pty Ltd
+Epic Cornices and Ceilings was established by skilled, well-minded and powerful youth group in South-Africa which identified in the provision of ceilings services in both commercial and industrial premises.
+Epic is a professional company in Gauteng province which specializes on all kind of ceilings services, installation and designs.We offer a wide range of services incorporated drywall, suspended ceilings, laminated flooring, bulkheads designs,cornices and various services related to ceilings installation.![155318566_190642732830291_5493880536850819334_n](https://user-images.githubusercontent.com/115148384/194287687-2b80b38b-814a-40f8-bedd-8da85d2f14c9.jpg)
+![IMG_20210601_170052826](https://user-images.githubusercontent.com/115148384/194287827-362a3c1c-04c5-4563-87a9-f241b2aac9b3.jpg)
